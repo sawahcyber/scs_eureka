@@ -1,2 +1,2 @@
 # scs_eureka
-*None, but it has happened*
+*Jejaknya mungkin terhapus, tapi sejarah tak pernah benar-benar menghilang*
